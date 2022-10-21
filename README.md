@@ -1,1 +1,1 @@
-# sankou
+KyokuSai desu.
